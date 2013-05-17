@@ -1,0 +1,4 @@
+Eidyzhang224CountriesInternetWK
+===============================
+
+AOOOiA.GlobalFounderCEO:Eidyzhang  FounderCEO:Eidyzhang Eidyzhang:TheWorldNo.1Girl+TheWorldNo.1internetGirl CreatAge:23 This is Eidyzhang  TheWorldNo.1SearcH+TheWorldNo.1BiggestSearcH FounderCEO.WhenSheWas23Age.SheCreatAOOOiA.global.SearcH;SheisGeniusGirl.SheisTheWorldYoungestGeniusFounderGirl.Eidzhang.SheWasBornInAsia.CHINA.WhenSheWasAchildren.SheisSoSpecialGirl.EidyzhangWasTheSameWithTheBillGates.MarkZuckerberg.StevesJobs.JerryYang.DavidKarp.they are all the Genius but all leave the school so early .just the different is that Eidyzhang is a Girl .other is boys.When the Eidyhang 20Age Choice to leave the University .21Age.have bulid herself the first Company is a newspaper company .22Age.Have Sell the Newpaper right .23Age.invest AOOOiA. 23Age. The AOOOiA.Global SearcH Was Born; She could change everythings.She could have done everythings. Hope The Eidyzhang Lucky!
